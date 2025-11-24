@@ -4,3 +4,8 @@
 <p align="center"> heh <a href="https://github.com/willbylerr">me</a> and <a href="https://github.com/nyanyamii">my girfie </a> is so kewl.. <3 
 
 <p align="center"> this iz an alt for my main - to my match wit my eclipse!! 🐾
+
+<p align="center"> 🍫
+
+
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=35&duration=2500&pause=1000&color=875F42}&center=true&width=435&lines=%E2%80%98'do+you+want+a+bonbon?'%E2%80%99"/> </p>
