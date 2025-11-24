@@ -8,5 +8,7 @@
 
 <p align="center">${\textsf{\color{#875F42}i block freely + no dni !!}}$
 
+<p align="center">${\textsf{\color{#875F42}Mimi / richie!!}}$
+
 # <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=35&duration=2500&pause=1000&color=875F42}&center=true&width=435&lines=%E2%80%98'do+you+want+a+bonbon?'%E2%80%99"/> </p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=MissSkunky&color=875f42&style=for-the-badge&label=++++++bonbons++++++&base=4274"></img></p>
