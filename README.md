@@ -1,14 +1,11 @@
-![1000023489](https://github.com/user-attachments/assets/b2a1d399-6918-4478-b397-d54a1a44aba8)
+![](https://media1.tenor.com/m/THZf1032YxcAAAAd/tree.gif)
 
-##  <p align="center">${\textsf{\color{#875F42}ME}}$ AND ${\textsf{\color{#2E4356} MY GF!! }}$
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  
+## <p align="center" >𝔞𝔟𝔬𝔲𝔱 𝔪𝔢</p>
+<p align="center"> 6𝔱𝔢𝔢𝔫 . 𝔣𝔢𝔪 ✧
 
-<p align="center">${\textsf{\color{#875F42}16}}$
-
-<p align="center">${\textsf{\color{#875F42}c+h and int enc!}}$
-
-<p align="center">${\textsf{\color{#875F42}i block freely + no dni !!}}$
-
-<p align="center">${\textsf{\color{#875F42}Mimi / richie!!}}$
-
-# <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=35&duration=2500&pause=1000&color=875F42}&center=true&width=435&lines=%E2%80%98'do+you+want+a+bonbon?'%E2%80%99"/> </p>
-<p align="center"><img src="https://komarev.com/ghpvc/?username=MissSkunky&color=875f42&style=for-the-badge&label=++++++bonbons++++++&base=4274"></img></p>
+<p align="center"> 𝔦 𝔤𝔬 𝔟𝔶 𝔰𝔥𝔢 / 𝔦𝔱 / 𝔭𝔲𝔭
+<p align="center">𝔚𝔥𝔢𝔫 𝔯𝔢𝔣𝔢𝔯𝔯𝔦𝔫𝔤 𝔱𝔬 𝔪𝔢 𝔭𝔩𝔢𝔞𝔰𝔢 𝔲𝔰𝔢 𝔪𝔦𝔪𝔦 / 𝔯𝔦𝔠𝔥𝔦𝔢   . 
+<p align="center"> 𝔠 + 𝔥 & 𝔴2𝔦 𝔞𝔳𝔞𝔦𝔩
+  
+⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀  ![](https://media1.tenor.com/m/hc0jHXeEraAAAAAd/kitty%27s.gif)
